@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @lruige
-- My account [loongruige](https://github.com/loongruige) has been compromised :( I'll be on this account until I can re-gain access back, or maybe I won't..
-
+- My dream is to work at [General Mobile](https://github.com/generalmobile)
+- I might be a bit young, but it is what they say, "Ağaç yaşken eğilir" 😊
