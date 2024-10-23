@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @lruige
-- My dream is to work at [General Mobile](https://github.com/generalmobile)
+- My dream is to work at [General Mobile](https://github.com/general-mobile)
 - I might be a bit young, but it is what they say, "Ağaç yaşken eğilir" 😊
